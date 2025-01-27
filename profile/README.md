@@ -1,4 +1,4 @@
-## We are LQ 👋
+## Nós somos LQ 👋
 
 <!--
 
